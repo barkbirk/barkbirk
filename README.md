@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Bark von Birk
+- 👀 I like computer programming
